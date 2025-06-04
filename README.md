@@ -2,7 +2,7 @@
 - 👀 I’m interested in surviving at the moment
 - 🌱 I’m currently learning what I can pass down
 - 💞️ I’m looking to collaborate on this life
-- 📫 How to reach me is through here
+- 📫 How to reach me: vinicorpch0710@gmail.com
 
 <!---
 youcantstoptherain/youcantstoptherain is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
